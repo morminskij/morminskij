@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @morminskijhjv,bmn gfd
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...cfasdvxc
-- 📫 How to reach me ...
+- 📫 How to reach me ...asd
 sadjdfhfgh
 <!---
 morminskij/morminskij is a ✨ specialxsa ✨ repository becausecaits `README.md` (this file) appears on your GitHub profile.

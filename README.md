@@ -1,4 +1,4 @@
-xxzcc- 👋 Hi, I’m @morminskijhjv,bmn gfd
+xxzcc- 👋 Hi, I’m @morminskijhjv,bmn gfdівфіввфі
 - 👀 I’m interested intui ...
 - 🌱 I’m currently learning .cxv..cfagkljsdvxcsdfcvxz
 - 📫 How to reach me ...asdascxzcsdc

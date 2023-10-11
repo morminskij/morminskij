@@ -4,7 +4,7 @@ asdzcxcxzzxcxxzcc- 👋 Hi, I’m @morminskijhjv,bmn gfdівфіввфі
 - 📫 How to reach me ...asdascxzcsdc
 sadjdfhfghcxzasdxzcxz
 <!---vxcasdfasdfkhjbasddgfhdgfh
-morminskij/morminskij is a ✨ specialxsa ✨ gbfrepository becausecaitsx `README.md` (this file) appears on your GitHub profile.
+morminskij/morminskij is a ✨ specialxsa ✨ gbfrepository becaughjfhsecaitsx `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.смиfdgvcxcx
 --->вап
 1SDF

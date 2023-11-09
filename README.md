@@ -1,7 +1,7 @@
  asdzcxcxzzxcxxzcc- 👋 Hi, I’m @morminskijhjv,bmn gfdівфіввфі
 - 👀 I’m interested intui ...xvz
 - 🌱 I’m currently learning sadfzdfvcv.cxv..cfagkljsdvxcsdfcvxzzxczxcaszxc
-- 📫 How to reach me ...asdascxzcsdcasdsadasd
+- 📫 How to reach me ...asdfdssdascxzcsdcasdsadasd
 sadjdfhfghcxzasdxzcxzsdfdsf
 <!---vxcasdfasdfkhjbasddgfhdgfhcxzxcvcx
 morminskij/morminskij is a ✨ specialxфівіфвsa ✨ gbfrezpository becaughasdzxcjfhsecaitsx `README.mdіфвіфвфівіф` (this file) appears on your GitHub profile.sdfdsfdsfвфа

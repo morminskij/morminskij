@@ -1,6 +1,6 @@
  asdzcxcxzzxcxxzcc- 👋 Hi, I’m @morminskijhjv,bmn gfdівфіввфі
 - 👀 I’m interested intui ...xvz
-- 🌱 I’m currently learning jhxczxhgnsadfzdfvcv.cxv..cfagkljsdvxcdasdaxsasadsdfмсчvxzzxasdsadczxcaszxczxzxadsfdsfsdsadasfd
+- 🌱 I’m currently learning jhxczxhgnsadfzdfvcv.cxv..cfagkljsdsdasdavxcdasdaxsasadsdfмсчvxzzxasdsadczxcaszxczxzxadsfdsfsdsadasfd
 - 📫 How to reach me ...asdfdssdas.kljcxzcsdcasdsadasd
 sadjdfhfghcxzasdxzcxcxzsdfdsf
 <!---vxcasdfasdfkhjbasddgfhdgfhcxzxcvcxsdf
